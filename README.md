@@ -1,0 +1,1 @@
+a detail of d project
